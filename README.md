@@ -1,4 +1,4 @@
-# mukulbhalla.github.io
+# Mukul Bhalla
 Hi 👋 My name is **Mukul Bhalla**.<br>
 I'm from **Ludhiana**. <br>
 I'm currently doing **B.tech** in **Computer science** at **GURU NANAK DEV ENGINEERING COLLEGE,LUDHIANA**.<br>
